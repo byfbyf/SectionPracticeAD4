@@ -6,6 +6,5 @@ Yifan Bai:
 I can't finish my CSE homework due tonight. My favorite animal is cat!!! Cats are cute!!!!!!
 
 
-
 Coco
-My favoirte animal is Husky or cat
+My favoirte animal is Husky
