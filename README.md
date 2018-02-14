@@ -1,1 +1,1 @@
-My favoirte animal is Husky.
+My favoirte animal is Husky or cat
